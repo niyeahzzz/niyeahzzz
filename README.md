@@ -2,7 +2,7 @@
 - 👀 I’m interested in code
 - 🌱 I’m currently learning networking
 - 💞️ I’m looking to collaborate on networking projects
-- 📫 How to reach me ig @niy4z_.fr
+- 📫 How to reach me www.linkedin.com/in/abdul-niyaz-084475324
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i don't know anything
 
